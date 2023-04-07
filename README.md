@@ -1,2 +1,2 @@
-# Mirza-Fahrudun
+# Mirza-Fahrudin
 Punya Mirza Fahrudin
